@@ -1,0 +1,1 @@
+# strakhov_photo_kirov
